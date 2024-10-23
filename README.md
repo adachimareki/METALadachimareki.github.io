@@ -1,0 +1,2 @@
+# adachimareki.github.io
+レアメタルのウェブサイト
